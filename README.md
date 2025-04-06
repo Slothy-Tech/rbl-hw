@@ -1,4 +1,4 @@
-<h1 align="center">🔓 Roblox HWID Ban Fix — Get Unbanned and Back in the Game</h1>
+<h1 align="center">Roblox HWID Ban Fix — Get Unbanned and Back in the Game🔓 </h1>
 <p align="center">Bypass your Roblox hardware ban (HWID ban) fast, safely, and for free. Start playing again today.</p>
 
 <p align="center">
